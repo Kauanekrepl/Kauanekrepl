@@ -1,4 +1,4 @@
-- 👋 kauane krepel 
+- 👋 kauane krepel
 - 👀 estudar bastante 
 - 🌱 atualmente estou no ensino médio 
 - 💞️ procure colaborar 
